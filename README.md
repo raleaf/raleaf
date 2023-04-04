@@ -7,4 +7,4 @@ Sou Rafael Costa👋
 
 
 - 📫 contato: r-affael@hotmail.com
-- 😄 Pronouns: ele/dele
+- 😄 Pronomes: ele/dele
